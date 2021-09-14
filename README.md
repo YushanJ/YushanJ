@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @YushanJ
+- 👀 I’m interested in watching anime, travel, and photography
+- 🌱 I’m currently learning data analytics
